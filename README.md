@@ -1,5 +1,5 @@
 - 👋 Hi, My name is Zhukov Anton, and I'm IT-recruiter in App in the Air.
-- 👀 I’m interested in searching for colleagues
+- 👀 I’m interested in looking for a colleagues
 - 📫 How to reach me:
 E-mail: az.hr.it@gmail.com
 Telegram: @az_it_recruit
